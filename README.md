@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Maria Augusta
+- Estou em transição de Carreira! 
+- Sou formada em Direito desde 2015, porém no começo desse ano iniciei meus estudos na área de tecnologia/informática e desde então, tenho despertado cada vez mais interesse em aprender mais sobre esse mundo. 
+- Ainda não possuo experiência na área, mas tenho muita força de vontade e disponibilidade.
+- Atualmente estou estudando através da plataforma da “Digital Innovation One - DIO”.
